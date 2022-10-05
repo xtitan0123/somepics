@@ -1,0 +1,8 @@
+![Ryujinx1](https://github.com/xtitan0123/somepics/blob/main/Ryujinx1.png)
+![Ryujinx2](https://github.com/xtitan0123/somepics/blob/main/Ryujinx2.png)
+![Ryujinx3](https://github.com/xtitan0123/somepics/blob/main/Ryujinx3.png)
+![Ryujinx4](https://github.com/xtitan0123/somepics/blob/main/Ryujinx4.png)
+![switch1](https://github.com/xtitan0123/somepics/blob/main/switch1.png)
+![switch2](https://github.com/xtitan0123/somepics/blob/main/switch2.png)
+![switch3](https://github.com/xtitan0123/somepics/blob/main/switch3.png)
+![switch4](https://github.com/xtitan0123/somepics/blob/main/switch4.png)
